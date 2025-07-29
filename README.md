@@ -1,2 +1,0 @@
-# Leif
-Materiale di Leif
